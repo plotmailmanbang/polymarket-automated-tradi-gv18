@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket updated Strategy: high-frequency-trading & risk-management, the #1 strategy. Includes high-frequency-trading and risk-management
 
 
 
